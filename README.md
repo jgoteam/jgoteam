@@ -1,1 +1,1 @@
-Let's build it! 📚
+Let's build it! 💪
